@@ -753,10 +753,18 @@ I've also reduced my dependence on my smartphone considerably. Its easier to cat
 
 ### 6 Nov
 
-Wow, it's been a long time since I updated this log.
+Wow, it's been a long time since I updated this log. I had a lot of health issues which impacted my practice quite a bit last year and this year. I didn't mention this much in my log entries, but I was on on off sick with a virus for May '18 - April '19, plus had kidney stones in June, and many bouts of severe abdominal pain that would incapaciate me for a day or so. I learned a lot about pain and body-mind. These afflictions were a great lesson.
 
+After the retreat I didn't get sick again and now, 8 months later, I can safely say I've beaten that virus. I also finally went into the hospital during one of the rounds of abdominal pain and went through various tests (along with staying at the hospital and almost getting sent to emergency surgury) which confirmed my diagnosis of gallbladder problems. As I had many rounds of pain before seeing the doctor, it was easy to determine that my gallbladder gets inflamed when I eat food containing fat - even fairly small amounts - after fasting (anything longer than 12 hours). In fact, most of the gallbladder attacks occured after staying at the wat.
 
+Eating many times throughout the day and only eating foods without fat in the morning has completely stopped the biliary colic. This health issue is incompatable with holding the 8 precepts as skipping meals is dangerous. Eating only one meal a day is out of the question. So, I'll stick with staying at temples with two meals and flexibility about eating in the evening. All I need is a few bananas or the like in the evening and I'll not get sick.
 
+After the retreat in February, I didn't feel the need for formal practice as *everything* was practice. Unfortunately, as time went on and I was flooded with work, I lost the attitude of practice and my formal practice was weak. 
 
+I've not talked with Dhammarato as much as before. Instead of talking every week we talk once or twice a month. Our conversations are fun, but long and all over the place. There's not a lot of teaching anymore, just friends talking.
+
+I sewed a kesa with Jundo's permission in June. It took about three weeks to sew and dye. It was frustrating to learn to put on and take off. I often feel like an imposter with it on, a fake monk.  I sat with it most days throughout phansa (vassa). I've partially come to terms with the procedure to put it on and take it off, as well as the ego issues surrounding dressing like a monk.
+
+Treeleaf Ango started in September. I was very excited for it, but I had a hard time implementing my commitments to sit twice a day and do oryoki each day. My partner ended up going silent, and at one point I wanted to drop out of Ango as I was having difficulty sitting for even a few minutes each day. I've pulled out of that slump a week or two ago and my practice has really taken off. I stopped spending hours watching videos and have been reading dhamma/dharma books and blogs instead. I've been able to sit several times a day for 20 minutes each, and I think I'll get back to 30 minute sits in no time.
 
 
