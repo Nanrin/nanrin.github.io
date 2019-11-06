@@ -2,6 +2,11 @@
 
 This is a place for me to keep track of various Dhamma/Dharma related thoughts.
 
+## Index
+
+* [Teachers](#Teachers)
+
+* [Books](#Books)
 
 ## Teachers
 
