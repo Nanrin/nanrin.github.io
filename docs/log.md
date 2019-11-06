@@ -2,6 +2,10 @@
 
 This log was started as a response to weekly "how's your practice" threads on a reddit forum. After a few months I started to write it up as a separate log. As I evenually left the forum where this was posted, I stopped updating the log for about a year.
 
+[link to latest entry](#6-nov)
+[link to this year's entries](#2019)
+---
+
 ## 2017
 
 ### [27 April 2017](https://www.reddit.com/r/streamentry/comments/67hrrx/practice_how_is_your_practice_week_of_25_april/dgshjhr/)
@@ -128,6 +132,8 @@ I've been starting to more seriously look into details for how to enter jhana. I
 
 ## 2018
 
+
+---
 
 
 ### [1 January](https://www.reddit.com/r/streamentry/comments/7nfg0i/practice_how_is_your_practice_week_of_january_1/ds1d1dn/)
@@ -730,7 +736,7 @@ On a several day long trip I only had a small amount of dhamma learning material
 
 I am planning on going on a formal retreat in December. 
 
-Adversion type personality
+---
 
 ## 2019
 
