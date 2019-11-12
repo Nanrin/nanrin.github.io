@@ -2,7 +2,7 @@
 
 This log was started as a response to weekly "how's your practice" threads on a reddit forum. After a few months I started to write it up as a separate log. As I evenually left the forum where this was posted, I stopped updating the log for about a year.
 
-[link to latest entry](#6-nov)
+[link to latest entry](#9-nov)
 [link to this year's entries](#2019)
 ---
 
@@ -774,3 +774,14 @@ I sewed a kesa with Jundo's permission in June. It took about three weeks to sew
 Treeleaf Ango started in September. I was very excited for it, but I had a hard time implementing my commitments to sit twice a day and do oryoki each day. My partner ended up going silent, and at one point I wanted to drop out of Ango as I was having difficulty sitting for even a few minutes each day. I've pulled out of that slump a week or two ago and my practice has really taken off. I stopped spending hours watching videos and have been reading dhamma/dharma books and blogs instead. I've been able to sit several times a day for 20 minutes each, and I think I'll get back to 30 minute sits in no time.
 
 
+### 7 Nov
+
+I'm still in sit many times throughout the day mode! Yesterday for one of the sits I sat until the stick of incense burned out, then lit another and kept on sitting. I've been sitting for more than an hour a day, and I want to sit each time, even if I'm hot, hungry, tired, or what-have-you.
+
+### 9 Nov
+
+Sat morning, afternoon, and night as usual. I've also started to do some chanting - it's been so long that I can't do it from memory as before; time to refresh my memory.
+
+### 12 Nov
+
+Yesterday I talked with Dhammarato. Today I talked with Jundo. I had a few questions about the community side of practice. I'm not very involved in any groups, but after conferring with my elders, it sounds like that's just fine. Just keep sitting.
