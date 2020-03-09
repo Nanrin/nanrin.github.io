@@ -2,8 +2,8 @@
 
 This log was started as a response to weekly "how's your practice" threads on a reddit forum. After a few months I started to write it up as a separate log. As I evenually left the forum where this was posted, I stopped updating the log for about a year.
 
-[link to latest entry](#9-nov)
-[link to this year's entries](#2019)
+[link to latest entry](#9-mar)
+[link to this year's entries](#2020)
 ---
 
 ## 2017
@@ -785,3 +785,11 @@ Sat morning, afternoon, and night as usual. I've also started to do some chantin
 ### 12 Nov
 
 Yesterday I talked with Dhammarato. Today I talked with Jundo. I had a few questions about the community side of practice. I'm not very involved in any groups, but after conferring with my elders, it sounds like that's just fine. Just keep sitting.
+
+## 2020
+
+### 9 Mar
+
+I was thinking about making a dhamma/dharma practice blog/website a few days ago, and today I rediscovered that I already had got started! December I was very busy constructing a new house. It is 5x5 meters, two rooms and a long porch upstairs, bathrooms and open kitchen area downstairs. I also have a watertower with just enough space to put an altar and zafu behind the water tank. After that I was busy catching up with work during January, then building a small house for an old widow in February, now back to catching up with work. Some financial problems have come up leaving me with some debts I didn't incur personally. Earlier this month I was extremely stressed and not practicing. Now I am not stressed and practicing. Circumstances haven't really changed though.
+
+For the last few days I have been thinking about zen forms.
