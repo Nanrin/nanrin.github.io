@@ -8,19 +8,14 @@ I got started by reading books and asking people here in Thailand about Buddhism
 
 * [Bhikkhu Buddhadasa](https://www.bia.or.th) was Dhammarato's teacher. His book Handbook for Mankind converted me to Buddhism, and I have read many of his books since. As I've had the chance to stay at [Dipabhavan](https://www.dipabhavan.org/) and practice with [Ajahn Po](https://th.wikipedia.org/wiki/%E0%B8%9E%E0%B8%A3%E0%B8%B0%E0%B8%A0%E0%B8%B2%E0%B8%A7%E0%B8%99%E0%B8%B2%E0%B9%82%E0%B8%9E%E0%B8%98%E0%B8%B4%E0%B8%84%E0%B8%B8%E0%B8%93_(%E0%B9%82%E0%B8%9E%E0%B8%98%E0%B8%B4%E0%B9%8C_%E0%B8%88%E0%B8%99%E0%B8%BA%E0%B8%97%E0%B8%AA%E0%B9%82%E0%B8%A3)), and work with [Tan Dhammavidu](http://dhammavidu.com/DV/Tan_Dhammavidu.html) on translating some of Bhikkhu Buddhadasa's work, I feel he is my teacher although we never have met in person.
 
-It's worth noting that I am not authorized to formally teach in either the Theravada tradition or Zen.
-
 ## Honorable Mentions
 
-I do not interact with these people directly (many of them are dead), but their, but I find their writings/talks very helpful.
+I have never met these people, but their writings and talks have been very hhelpful
 
-* Dogen Zenji
+* Dogen Zenji and many other Zen ancestors
 
-* [Thanissaro Bhikkhu](dhammatalks.org), for his excellent talks and writings
+* [Thanissaro Bhikkhu](dhammatalks.org)
 
-* [Ajahn Jayasaro](https://www.jayasaro.panyaprateep.org/) for his excellent talks and writings
+* [Ajahn Jayasaro](https://www.jayasaro.panyaprateep.org/) 
 
-* Many authors for their books
-
-* Many monks and laypeople for their frendship and advice
 

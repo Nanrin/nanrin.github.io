@@ -793,3 +793,23 @@ Yesterday I talked with Dhammarato. Today I talked with Jundo. I had a few quest
 I was thinking about making a dhamma/dharma practice blog/website a few days ago, and today I rediscovered that I already had got started! December I was very busy constructing a new house. It is 5x5 meters, two rooms and a long porch upstairs, bathrooms and open kitchen area downstairs. I also have a watertower with just enough space to put an altar and zafu behind the water tank. After that I was busy catching up with work during January, then building a small house for an old widow in February, now back to catching up with work. Some financial problems have come up leaving me with some debts I didn't incur personally. Earlier this month I was extremely stressed and not practicing. Now I am not stressed and practicing. Circumstances haven't really changed though.
 
 For the last few days I have been thinking about zen forms.
+
+### 10 Mar
+
+Talked with Dhammarato for the first time in several months.
+
+
+### 18 Mar
+
+I joined in in Zazenkai and talked with Dhammarato again. I'm getting back to the translation project.
+
+### 25  Mar
+
+I joined in in Zazenkai 
+
+### 2 May
+
+Had a rather good time joining in the one day spring retreat at Treeleaf.
+
+
+
