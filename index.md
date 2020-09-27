@@ -12,4 +12,4 @@ This is a place for me to keep track of various Dhamma/Dharma related thoughts.
 
 * [Personal History](docs/personalhistory)
 
-* [Practice Log](docs/log)
+* [SA/SN Study](docs/fundamentalearlyteachings)
